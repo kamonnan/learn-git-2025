@@ -4,3 +4,4 @@ from KKU
 CoE
 tel> 0953576510
 Basecamp : Namneung
+I love NCT127
