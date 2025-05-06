@@ -7,3 +7,4 @@ Basecamp : Namneung
 I love NCT127
 My favourite color is red.
 I wnat to be rich.
+My bf's Haechan.
