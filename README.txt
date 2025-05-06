@@ -6,3 +6,4 @@ tel> 0953576510
 Basecamp : Namneung
 I love NCT127
 My favourite color is red.
+My bf's Haechan.
